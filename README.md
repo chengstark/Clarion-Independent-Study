@@ -1,3 +1,3 @@
 # Clarion-Independent-Study
-Stark &amp; Tiger \n
+Stark &amp; Tiger
 Independent Study 2018 - DEC
